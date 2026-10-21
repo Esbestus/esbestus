@@ -3,7 +3,7 @@
 hi im asbestos or bestie for short. puppy is good too
 
 
-i afk a lot in pt :3 feel free to say hi but I might be slow to reply! please don't be weird lol
+i afk a lot in pt :3 feel free to say hi but I might be slow to reply!
 
 
 (may add more to this later...)
